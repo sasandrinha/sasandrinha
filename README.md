@@ -1,0 +1,5 @@
+-  Oi, eu sou @sasandrinha
+-  Estou interessada em estudar para ser bombeira
+-  Estou aprendendo programação
+-  Como chegar até mim @sandra.pinheiro.souza@escola.pr.gov.br
+-  no meu tempo livre gosto de sair e me divartir com minha familia 
